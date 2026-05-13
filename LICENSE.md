@@ -1,4 +1,4 @@
-# 
+# premium NFT Scanner for blur sniper bot | metadata-parsing & rarity-analysis offers the most advanced blur sniper bot, with metadata-parsing and rarity-analysis. Ideal for
 
 
 
